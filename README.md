@@ -1,16 +1,17 @@
-## Hi there 👋
+</div>
 
-<!--
-**wishingforstars/wishingforstars** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![.](https://komarev.com/ghpvc/?username=wishingforstars&base=1&label=my+baby+rainlings&color=F0CF68&style=plastic)
+
+<img width="146" height="146" alt="whats up youtube" src="https://media1.tenor.com/m/1OJzxmnDFgkAAAAd/jirachi-starters-pokemon.gif" />
+
+${{\color{#148DC5}{\textsf{call me stars i lowkey dont care about pronouns }}}}$
+
+${{\color{#F0CF68}{\textsf{recommend reading my strawpage if youre interested for some odd reason}}}}$
+
+${{\color{#148DC5}{\textsf{ i stick around irl friends, as i dont see people online as friends, more "mutuals" or whatever }}}}$
+
+[strawpage](https://raincakes.straw.page)[atabook](https://stargazing.atabook.org)[rentry](https://rentry.co/beyondtheskybox)
+ 
