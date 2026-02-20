@@ -13,7 +13,7 @@ ${{\color{#F0CF68}{\textsf{recommend reading my strawpage if youre interested fo
 
 ${{\color{#148DC5}{\textsf{i stick around irl friends, as i dont see people online as friends, more "mutuals" or whatever }}}}$
 
-${{\color{#F0CF68}{\textsf{be wary if you want to call me your friend, or you believed we were friends before. we were not bro }}}}$
+${{\color{#F0CF68}{\textsf{ i dont have a dni and i hide whoever i want so dont annoy me about it chud }}}}$
 
 [strawpage](https://raincakes.straw.page)[atabook](https://stargazing.atabook.org)[rentry](https://rentry.co/beyondtheskybox)
  
