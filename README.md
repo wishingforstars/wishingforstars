@@ -4,7 +4,6 @@
 
 [strawpage](https://raincakes.straw.page)
 [atabook](https://stargazing.atabook.org)
-[rentry](https://rentry.co/beyondtheskybox)
  
 <img width="146" height="146" alt="whats up youtube" src="https://media1.tenor.com/m/1OJzxmnDFgkAAAAd/jirachi-starters-pokemon.gif" />
 
