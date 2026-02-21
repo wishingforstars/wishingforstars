@@ -2,7 +2,7 @@
 
 <div align="center">
 
-[strawpage](https://stargazingtonight.straw.page)
+[strawpage](https://stargazingtonight.straw.page) and
 [atabook](https://stargazing.atabook.org)
  
 <img width="146" height="146" alt="whats up youtube" src="https://media1.tenor.com/m/1OJzxmnDFgkAAAAd/jirachi-starters-pokemon.gif" />
