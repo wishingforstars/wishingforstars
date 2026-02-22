@@ -1,7 +1,3 @@
-</div>
-
-<div align="center">
-
 [strawpage](https://stargazingtonight.straw.page) and
 [atabook](https://stargazing.atabook.org)
  
