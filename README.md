@@ -1,7 +1,7 @@
-[strawpage](https://stargazingtonight.straw.page) and
+[strawpage](https://stargazingtonight.straw.page)
 [atabook](https://stargazing.atabook.org)
  
-<img width="112" height="112" alt="my glorious king" src="https://media1.tenor.com/m/0bRXiQmhEJQAAAAC/jirachi-starters.gif" />
+c+h freely or something idk tell me if someone bad is near me since im kinda slow
 
 i hate you all
 
