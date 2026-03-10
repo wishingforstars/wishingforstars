@@ -5,5 +5,5 @@
 [atabook](https://stargazing.atabook.org)
  
 
-i hate you all
+js block me if u dislike me stop talking about me or petty drama pls 😭😭😭 its embarassing for both of us + i did nothing
 
