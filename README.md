@@ -3,6 +3,6 @@
 <p align="left"> stars / wish </p>
 <p align="left"> wrlds biggest larp </p>
 
-[straw](https://stargazingtonight.straw.page)[ata](https://stargazing.atabook.org)[rentry](https://beyondtheskybox)[click](https://arab.org/)
+[straw](https://stargazingtonight.straw.page)[ata](https://stargazing.atabook.org)[rentry](https://rentry.co/beyondtheskybox)[click](https://arab.org/)
 
 
