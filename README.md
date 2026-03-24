@@ -1,10 +1,8 @@
-[**click this rn**](https://arab.org/)
+[**click this**](https://arab.org/)
+
+<img src="https://files.catbox.moe/40th3h.webp" alt="labubu" style="width:100px;height:100%;">
 
 
-[strawpage](https://stargazingtonight.straw.page)
-[atabook](https://stargazing.atabook.org)
-[WIP HEAVYYY HEAVY WIP NEKOWEB. check straw instead chuds](https://wishes.nekoweb.org)
- 
+[straw](https://stargazingtonight.straw.page)[ata](https://stargazing.atabook.org)[rentry](https://beyondtheskybox)
 
-js block me if u dislike me stop talking about me or petty drama pls 😭😭😭 its embarassing for both of us + i did nothing
 
