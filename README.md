@@ -1,5 +1,4 @@
-<p align="left">  </p>
-<img align="left" src="https://files.catbox.moe/p6qacp.gif" alt="labubu" style="width:100px;height:100%;">
+<p align="left"> this is used for umm pony town or roblox revivals </p>
 <p align="left"> hi me wish </p>
 <p align="left"> i lov my irl friends hi soso and sleepy </p>
 
