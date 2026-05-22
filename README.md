@@ -2,6 +2,6 @@
 <p align="left"> hi me wish </p>
 <p align="left"> i lov my irl friends hi soso and sleepy </p>
 
-[straw](https://wishiies.straw.page)[click](https://arab.org/)
+[my little strawpage](https://wishiies.straw.page)
 
 
