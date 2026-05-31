@@ -1,4 +1,5 @@
 <p align="left"> not active that muuucchhhhhh i like to snoop around code 👀👀 </p>
-[my little strawpage](https://wishiies.straw.page)
+(https://wishiies.straw.page 
+also umm look at this oka [mmm](https://rentry.co/burningout)
 
 
