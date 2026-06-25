@@ -1,4 +1,4 @@
-tetratto.com/@wayward ASK
+
 
 
 <p align="left"> not active that muuucchhhhhh i like to snoop around code 👀👀 </p>
